@@ -10,4 +10,5 @@ Undoubtedly one of the great minds of our time, Aca Jordon challenges his reader
 </figure>
 
 >"The two greatest warriors are patience and time."
+<br>
 _Aca Jordon_
