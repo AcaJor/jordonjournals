@@ -9,9 +9,8 @@ Feel free to delete me!
 
 > This should look like a quote
 
-##This is a heading.
+**This is bold.**
 
-[ ] todo list?
-[ ] todo list?
-[x] todo list?
+*This is italics*
 
+Yay!
