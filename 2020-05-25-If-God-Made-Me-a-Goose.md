@@ -4,7 +4,7 @@ author: Aca Jordon
 layout: post
 ---
 
-> "Experience is the teacher of all things." -Julius Caesar
+> "Experience is the teacher of all things." - Julius Caesar
 
 
 The bank that I work at is in, for the most part, an urbanized area. However, there are a few plots of grass that surround the building and a small pond that sits directly behind it. The pond is, as dramatic as it sounds, a pleasant reminder of the simple beauty of life on even the toughest days.
