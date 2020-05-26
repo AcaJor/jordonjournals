@@ -7,7 +7,7 @@ layout: post
 > "Experience is the teacher of all things." - Julius Caesar
 
 
-The bank that I work at is in, for the most part, an urbanized area. However, there are a few plots of grass that surround the building and a small pond that sits directly behind it. The pond is, as dramatic as it sounds, a pleasant reminder of the simple beauty of life on even the toughest days.
+ The bank that I work at is in, for the most part, an urbanized area. However, there are a few plots of grass that surround the building and a small pond that sits directly behind it. The pond is, as dramatic as it sounds, a pleasant reminder of the simple beauty of life on even the toughest days.
 
  On Friday, there were two geese resting out beside the pond. I first saw the geese at around noon, and I was jealous of how they got to enjoy the fresh air while I had to go work. By the time I was leaving work in the evening I realized those two geese hadn't moved an inch since I had seen them almost six hours earlier. The warmth of the sun was lying down on them like a blanket, and the breeze was perfectly offsetting the heat of the sunshine. As I watched them, I wondered to myself: "Why didn't God make me a goose?"
 
